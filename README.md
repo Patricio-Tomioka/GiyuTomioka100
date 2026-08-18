@@ -17,6 +17,10 @@ Nunca pienses o te asegures que me conoces, porque nadie puede llegar a conocerm
  - Amoroso.
  - Entornos azules, morados con fortaleza, nostalgia y fuerza.
  - Viviendo siempre al día.
+ - Caballero de la noche.
+ - Me encanta el bosque y la altura.
+ - LA aventura es mi vida.
+ - León lobo, y delfín libre y fuerte.
  - Lobo solitario.
  - El muchacho de los ojos tristes.
  - Soñador y constructor de multiversos.
