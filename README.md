@@ -3,12 +3,22 @@
 **
 Pilar del agua, **"*Cazador*"** que busca misiones para la creación de grandes escenarios cinematográficos, mediante la animación, el color, el sonido y el movimiento perfecto para mundos inalcanzables, protagonista de mis propias batallas.
 
+Con los nombres de Pato, Giyu o Tomioka, ha crecido con muchas personalidades, pero siempre la que importa es la que uno sabe ver de si mismo.
+
+Nunca pienses o te asegures que me conoces, porque nadie puede llegar a conocerme del todo, siempre selectivo ya que busca lo mejor para su vida, si te ofrece su mano estas en un buen mundo, aún vendado de los ojos, no pierde el camino, tenas en su forma de ser, capaz de decidir con el corazón.
+
  - Apasionado por la vida.
+ - Amante de la comida Mexicana y China, uff sabroso.
  - Cortez y noble.
+ - Encantado por la musica.
  - Profesor y Amigo.
  - Sumamente sensible.
+ - Superándose siempre así mismo.
  - Amoroso.
+ - Entornos azules, morados con fortaleza, nostalgia y fuerza.
+ - Viviendo siempre al día.
  - Lobo solitario.
+ - El muchacho de los ojos tristes.
  - Soñador y constructor de multiversos.
  - Entregarlo todo sin limites.
  - Calmado pero con misterios.
